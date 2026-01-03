@@ -12,6 +12,6 @@ please read,,𝐁𝐘𝚰=
 
  - maybe i will use kms jokes
    
- - minor under 12 please gtfo😭
+ - minor under 15 please gtfo😭
    
  - i'm always afk,,so if you want to talk with me please whisp!
