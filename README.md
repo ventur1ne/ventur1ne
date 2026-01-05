@@ -1,7 +1,9 @@
  <p align="center">
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/4669ef13-5d86-439a-8fad-48012cdb7a13" />
 <a href="https://yesiloveman.atabook.org" target="_blank">ata</a>
-<a href="https://rentry.co/ventur1ne" target="_blank">rentry!</a>
+||
+  <a href="https://rentry.co/ventur1ne" target="_blank">rentry!</a>
+  
 please read,,𝐁𝐘𝚰=
 
  - c+h are welcome 
